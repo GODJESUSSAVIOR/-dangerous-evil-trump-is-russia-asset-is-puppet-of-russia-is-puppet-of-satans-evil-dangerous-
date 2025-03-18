@@ -21,7 +21,7 @@ trump must speak good things about russia putin !
 trump must deed good things for benefit to russia putin !
 trump must help putin russia attack rob resources of ukraine !
 trump must liar liar liar speak echoing propaganda of russia : attack ukraine , attack europe , attack nato , attack america , attack other nations !
-trump must increase tariff america purposes : to weaken america , to weaken europe , to weaken nato , to weaken all nations , so that all nations will be more easily invaded by russia china etc in the next years !
+trump must increase all tariffs america purposes : to weaken america , to weaken europe , to weaken nato , to weaken all nations , so that all nations will be more easily invaded by russia china etc in the next years !
 
 ❗️top secrets informations from internet :
 
